@@ -1,3 +1,3 @@
-Born and raised in the American midwest, presently holed up in the mountains near Los Angeles.
+𝐿𝑜𝑠 𝐴𝑛𝑔𝑒𝑙𝑒𝑠
 
 [tyleretters.com](https://tyleretters.com)
